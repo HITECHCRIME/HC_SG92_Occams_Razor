@@ -11,7 +11,7 @@ https://www.youtube.com/watch?v=3NRGzwlM7_c
 FREE | HARD XXXtentacion x $uicideboy$ Type Beat "Dark Thoughts" | 
 Dark Trap Beat
 
-**Title:** x / **Featuring:** x
+**Title:** x / **Featuring:** MOTHNODE
 
 **Production:** x / **Lyrics:** x
 
