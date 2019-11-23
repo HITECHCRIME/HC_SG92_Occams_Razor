@@ -29,15 +29,43 @@ ooooooooooo^
 bree
 
 stuck in a lot no fucking god
-stuck in a lot fucking role
+stuck in a lot fucking w- role
 fucking approach way to drugs
-
-aye
-
+ey EY
 fucking it all
+stick to the role
 fucking alone
 ready to brawl
+ey ziagada
 
+breeee
+
+stuck in a lot no fucking god
+stuck in a lot fucking role
+fucking approach way to drugs
+ey
+fucking it all
+stuck in enough
+fucking alone
+ready to brawl
+got a fuckin dead
+
+brou
+
+gotta razor fucking gold/told ye
+fucking get it all in raid on a prompt yeah
+
+fucking dead on a razor
+fucking dead
+
+
+front man
+
+yeah
+
+on a razor
+razor blade
+fucking get in on a razor-blade
 
 
 
