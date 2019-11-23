@@ -1,6 +1,6 @@
 (cover) ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ Occam's Razor (TEST NAME)
+# MOTHNODE_ Occam's Razor
 
 **Listen now:** x
 
@@ -18,6 +18,27 @@ Dark Trap Beat
 ## Lyrics
 
 ```
+aye
+braaa
+bra
+bra
+
+bra bra bra bra (fades)
+ooooooooooo^
+
+bree
+
+stuck in a lot no fucking god
+stuck in a lot fucking role
+fucking approach way to drugs
+
+aye
+
+fucking it all
+fucking alone
+ready to brawl
+
+
 
 
 ```
